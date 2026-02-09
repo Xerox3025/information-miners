@@ -1,1 +1,3 @@
 # information-miners
+
+Ссылка на видеоролик: https://rutube.ru/video/4c55b92b43b2a22cf367c6a9db682654/
